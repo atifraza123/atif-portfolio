@@ -99,9 +99,7 @@ Contact
 If you would like to discuss opportunities, collaborations or projects, you can contact me via:
 
 Name: Atif Raza
-
-(Add your email here)
-
-(Optional: add LinkedIn / GitHub profile links)
+Contact No: +923007691900
+Email: atifdildar110@gmail.com
 
 Thank you for visiting my portfolio.
